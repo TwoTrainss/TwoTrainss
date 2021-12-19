@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TwoTrainss
-- 👀 I’m interested in ... Men And Women
+- 👀 I’m interested in ... World Domination
 - 🌱 I’m currently learning ... To be a productive member of society
 - 💞️ I’m looking to collaborate on ... evil plans
 - 📫 How to reach me ... smoke signals from the highes mountain of the lowest country.
